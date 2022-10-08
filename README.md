@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @REX6985 I'm a husband, dad of 6, grandfather of 1.
+- 👋 Hi, I’m @REX69X I'm a husband, dad of 6, grandfather of 1.
 - 👀 I’m interested in ... learning a bit more about this project and how👁 help the community thrive.
 - 🌱 I’m currently learning ... about small business, crypto currency and a Lil coding now.
 - 💞️ I’m looking to collaborate on ... really anything that you may want to share.
